@@ -11,7 +11,8 @@ how to complete degree with the help of gurbani and how guru sahibaan help us in
 
 our seniors motivate us and then they inform us about the college campus and every activity happen in college like (ncc,games etc.).
 
-####Then after applied science HOD MAM DR. HARPREET KAUR GAREWAL MAM motivate us that our choice to select GNE COLLEGE is best. 
+#### Then after applied science HOD MAM DR. HARPREET KAUR GAREWAL MAM
+ motivate us that our choice to select GNE COLLEGE is best. 
 Mam also inforn us that what is the importance of applied sciences department.
 
 #### Then after our principal DR. SEHJPAL SINGH SIR
