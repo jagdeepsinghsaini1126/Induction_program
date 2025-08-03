@@ -31,12 +31,12 @@ After that there was a informative lecture in auditorium by satya scholarship em
 
 # Day 3
 
-## A very sirra lecture by DR. JASWINDER SINGH JI .
+### A very sirra lecture by DR. JASWINDER SINGH JI .
 
 Dr. jaswinder singh ji intoduce very interesting facts and practicals of science. 
 He expain each and everything with the help of gurbaani .
 
-## Then a lecture by DR.PRIYA DARSHINI MAM 
+### Then a lecture by DR.PRIYA DARSHINI MAM 
 
 About our goals.
 she enlighten us that what is our real goal of life ( to be happy ). She very kindly explainus what is the t main goal of a person in life. she explain us how human is surrounded by materialistic things and for short time excitement human forget his main goal of life.
