@@ -44,6 +44,11 @@ so I conclude that self introspection and healthy relationships and physical (ma
 
 # Day 4
 
+A very interesting lecture of c++ by our seniors. 
+
+After that a introductory lecture of BEEE BY 
+** BALWINDER SINGH SIR **
+
  
 
 
