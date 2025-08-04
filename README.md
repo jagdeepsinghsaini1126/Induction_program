@@ -47,7 +47,19 @@ so I conclude that self introspection and healthy relationships and physical (ma
 A very interesting lecture of c++ by our seniors. 
 
 After that a introductory lecture of BEEE BY 
-** BALWINDER SINGH SIR **
+**BALWINDER SINGH SIR** .
+
+## AT AUDITORIUM 
+
+Then after again a continuous lecture by priya darshini mam 
+
+Then after that a very kind and lovely singing performance of our senior. 
+
+Then a interesting lecture on laptop from our seniors, to guide us for purchasing laptop in a normal range .
+
+Then again a very very lovely singing and shayari performance from our seniors.
+
+Day5
 
  
 
