@@ -61,6 +61,23 @@ Then again a very very lovely singing and shayari performance from our seniors.
 
 # Day5
 
+#### Introductory lecture of chemistry
+#### A very motivational and learning lecture of english from prof.Nisha Mam .
+### At seminar hall
+#### A very motivational and lovely lecture by Dr. Gagandeep Kaur mam .
+
+# Day 6
+
+### ID card formation process from 9:30 to 12:30 .
+
+## At auditorium 
+### A very knowledgeable speech ( vaad-vivaad) about our college from * sardar Gurcharan singh ji Garewal * .
+
+## Then after a very-very knowledgeable lecture of CML ( CENTRE OF MULTI FACTED LEARNING ) from * Sir lakhveer singh khana ji * He very kindly explain us the * swayam *and * nptel * platform which help student to get free courses of advance studies .
+
+# Day 7
+
+
  
 
 
